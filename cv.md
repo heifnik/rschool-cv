@@ -1,7 +1,7 @@
 # Айбек Сатыбалдиев
 
 ## Contact Info
-
+@darkhanjuzz0
 
 ## Summary
 
