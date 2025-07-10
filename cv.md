@@ -7,7 +7,7 @@
 
 
 ## Skills
-
+SQL
   
 
 ## Education
